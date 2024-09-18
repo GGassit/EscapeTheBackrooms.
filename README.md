@@ -40,5 +40,5 @@ EscapeTheBackrooms Cheat
 - Any level!
 
 ### contact
-https://discord.gg/874SwAvv
+https://discord.com/invite/Kw5wxs6E
 qq群：473740107
